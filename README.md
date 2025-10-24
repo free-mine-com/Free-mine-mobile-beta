@@ -34,7 +34,10 @@ Free-mine.com mobile APK compiled stable in beta version
 <a href="https://freeimage.host/"><img src="https://iili.io/KgGiYOJ.png" alt="KgGiYOJ.png" border="0"></a>
 
 
+<div></div></br>
 
+<h3>Donations in USDT to Wallet address:</h3><p> TS7NJXkG8uu4QsmiDCgBKAuCcHGc9kHCY3</p>
+<div></div></br>
 
 
 
