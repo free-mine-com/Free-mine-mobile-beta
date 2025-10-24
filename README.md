@@ -5,3 +5,31 @@ Free-mine.com mobile APK compiled stable in beta version
 <a href="https://freeimage.host/"><img src="https://iili.io/KgEERtV.png" alt="KgEERtV.png" border="0"></a>
 <div></div><br/>
 <a href="https://freeimage.host/"><img src="https://iili.io/KgEhoKB.png" alt="KgEhoKB.png" border="0"></a>
+
+<div></div> </br>
+
+
+<a href="https://freeimage.host/"><img src="https://iili.io/KgGEmjR.png" alt="KgGEmjR.png" border="0"></a>
+
+
+<div></div></br>
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
