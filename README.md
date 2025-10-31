@@ -36,8 +36,12 @@ Free-mine.com mobile APK compiled stable in beta version.
 
 <div></div></br>
 
-<h3>Donations in USDT to Wallet address:</h3><p> TS7NJXkG8uu4QsmiDCgBKAuCcHGc9kHCY3</p>
+<h3>Donations in USDT to Wallet address FaucetPay:</h3>
+<p> TLJKnhHhMnAarp3hoHiV8xRLVTH3YLEMSH</p>
 <div></div></br>
+<h4>Network: </h4><p>TRX</p>
+
+
 
 
 
